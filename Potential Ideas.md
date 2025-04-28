@@ -1,0 +1,1 @@
+Union Mission to a newly discovered Diasporan world, Our squad is a team of new lancers meeting at the nearest blinkspace port 
