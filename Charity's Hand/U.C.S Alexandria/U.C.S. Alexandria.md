@@ -1,0 +1,1 @@
+The UCS Alexandria is the Capital Ship of Union Mission Charity's Hand. An assimilation fleet built for the rapid induction of Diasporan worlds into Core union space. The Alexandria is one of Union's most  

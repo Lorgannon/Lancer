@@ -1,4 +1,4 @@
-The House of Blood, or colloquially, The House, is the reigning government on [[Vela Prime]]. Currently ruled by [[Duke Kanik]].
+The House of Blood, or colloquially, The House, is the reigning government on [[Vela Prime]]. Currently ruled by [[Archduke Kanik]].
 
 - Aristocratic Regime: Rule divided up among the children of Kanik
 	- [[Marquis Tsuguto]] manages defense and security forces across Vela Prime
