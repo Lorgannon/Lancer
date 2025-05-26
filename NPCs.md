@@ -9,3 +9,13 @@
 [[Quartermaster Dremaline Zurich]]
 [[Chief Medical Officer Tara Vildani]]
 [[Chief Technical Officer Clem Robinson]]
+
+
+## Cadets
+
+[[Cory Wilkins]]
+[[Emile Tourette]]
+[[Taako Miaski]]
+[[Russel Hasty]]
+[[Daydro Gramm]]
+
